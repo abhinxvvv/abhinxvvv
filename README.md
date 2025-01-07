@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abhinxvvv
+- 👋 Hi, I’m Abhinav Kale.
 - 👀 I’m a tech-savvy.
 - 🌱 I’m currently helping founders to grow.
 - *_* I’m looking to collaborate on AI projects
